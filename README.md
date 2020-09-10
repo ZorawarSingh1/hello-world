@@ -3,4 +3,4 @@
 Hello!
 
 I am Zorawar i love to play basketball.
-I have 1 sibling and was. orn in Italy.
+I have 1 sibling and i was born in Italy.
